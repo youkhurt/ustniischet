@@ -1,2 +1,2 @@
 # ustniischet
- my f*****g project
+ my f***** project
